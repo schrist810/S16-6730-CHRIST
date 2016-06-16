@@ -1,0 +1,2 @@
+# S16-6730-CHRIST
+I'm not really an art person, but do love music! Too many good songs to choose from but my current favorite at the moment is In the Middle by JR JR: https://www.youtube.com/watch?v=hnzwoDoBb-g
